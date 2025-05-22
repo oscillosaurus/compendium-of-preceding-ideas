@@ -1,0 +1,1 @@
+# compendium-of-preceding-ideas
