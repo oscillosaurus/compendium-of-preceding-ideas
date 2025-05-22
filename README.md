@@ -1,1 +1,1 @@
-# compendium-of-preceding-ideas
+# An obituary for my objects.
